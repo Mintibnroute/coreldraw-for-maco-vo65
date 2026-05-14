@@ -1,4 +1,4 @@
-# 
+# Enhance CorelDRAW for macOS with ultimate Automation for CorelDRAW for macOS - custom brushes and grid systems, the #1 automation. Includes custom brushes and grid systems for a
 
 
 
